@@ -61,5 +61,5 @@ Every song, a seed of the future.
 
 ---
 
-© 2025 HopefulVision LLC · MUSIC/UTO Project  
+MUSIC/UTO Project  
 _Part of the ê/uto Network — Building Ethical, Aesthetic, and Auditory Futures_
